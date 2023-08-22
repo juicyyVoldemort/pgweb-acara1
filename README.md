@@ -9,4 +9,3 @@ Just like **Buddy Holy**
 Here have a [treat](https://www.youtube.com/watch?v=Kjr7US2Z9aY&pp=ygULYnVkZHkgaG9sbHk%3D)  
 
 
-![Watch Zeta Gundam](\Users\USER\Downloads\Kamille)
